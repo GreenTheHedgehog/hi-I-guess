@@ -1,6 +1,6 @@
 # hi-I-guess
 <div align=center>
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99F781&background=50FF5500&width=435&lines=%22I'm+gladly+you're+okay%2C+Shadow!%22)](https://git.io/typing-svg)
+(https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99F781&background=50FF5500&width=435&lines=%22I'm+gladly+you're+okay%2C+Shadow!%22)](https://git.io/typing-svg)
 
 Hi! I am Green The Hedgehog! you can call me Green or You can call me with nicknames if you want! no inappropriate!
 
