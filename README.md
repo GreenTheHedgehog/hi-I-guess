@@ -15,7 +15,7 @@ Friends!
 Ships I Really like it!
 °∆°
 ========================
-Sonamy, Silvaze, Knuxouge, Tailsmo, Sonknux, Greendow(Oc x Canon) (HEAVY SHIP)
+Sonamy, Silvaze, Knuxouge, Tailsmo, Sonknux, Greendow(Oc x Canon) (HEAVY SHIP), Silvisper, anything else expect darkship, proshipper!
 
 
 
