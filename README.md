@@ -1,4 +1,6 @@
 # hi-I-guess
+<p align="center">
+
 <div align=center>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=fast&pause=1000&color=99F781&background=50FF5500&center=true&width=435&lines=%22I'm+gladly+you're+okay%2C+Shadow!%22" alt="Typing SVG" /></a>
 
