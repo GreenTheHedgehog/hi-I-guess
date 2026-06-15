@@ -18,7 +18,7 @@ Hi! I am Green The Hedgehog! you can call me Green or You can call me with nickn
 
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 Characters that I kin:
-Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real).
+Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped(Forsaken). (I'm multifandom, hehe!)
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 
 
