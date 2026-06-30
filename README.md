@@ -28,7 +28,7 @@ Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Flutters
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　
 Friends!
 ===================
-@AmysBakingShow @KnucklesIRL @DjTheHedgehog @SmartFoxNerd
+@AmysBakingShow @KnucklesIRL @DjTheHedgehog @SmartFoxNerd @CreamTheRabbit-IceCream
 
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　
 
