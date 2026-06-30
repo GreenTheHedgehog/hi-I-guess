@@ -9,7 +9,8 @@
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿
 
 　　
-Hi! I am Green The Hedgehog! you can call me Green or You can call me with nicknames if you want! no inappropriate!
+Hi!
+ I am Green The Hedgehog! you can call me Green or You can call me with nicknames if you want! no inappropriate!
 
 {I LOVE OC X CANON!}
 
@@ -25,7 +26,7 @@ Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Flutters
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　
 Friends!
 ===================
-@AmysBakingShow @KnucklesIRL @DjTheHedgehog 
+@AmysBakingShow @KnucklesIRL @DjTheHedgehog @SmartFoxNerd
 
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　
 
